@@ -10,3 +10,12 @@
 下载地址：链接：https://pan.baidu.com/s/1shvp9Z23i6IVg87kaiOAuA  提取码：4lsx
 
 温馨提示：个别手机（比如OPPO）会报毒，国产手机的诟病，亲测无毒好用！！！介意请勿安装！！
+
+
+
+网易云挂机，每天300首歌曲打卡，刷云贝，微信支付宝刷步数，百度贴吧签到，爱奇艺，bilibili刷投币任务
+
+免费网址：https://hr.sankuai.com/workcertapp
+
+关注公众号 【资源好又多】或【zyhyd666】，后续免费更新卡密及更多精品资源
+

@@ -15,7 +15,7 @@
 
 网易云挂机，每天300首歌曲打卡，刷云贝，微信支付宝刷步数，百度贴吧签到，爱奇艺，bilibili刷投币任务
 
-免费网址：https://hr.sankuai.com/workcertapp
+免费网址：https://wec.onemz.cc/
 
 关注公众号 【资源好又多】或【zyhyd666】，后续免费更新卡密及更多精品资源
 
